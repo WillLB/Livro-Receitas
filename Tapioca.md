@@ -15,4 +15,4 @@
  4. Depois de peneirado, aquecer uma frigideira com teflon.
  5. Colocar a massa de polvilho já peneirada, o suficiente para cobrir a frigideira, fazendo uma massa em forma de círculo bem fina, como se fosse panqueca.
  6. Deixar por alguns minutos, até que solte da frigideira, e virar para o outro lado como se fosse omelete.
- 7. Após alguns minutos, está pronta para recheiar conforme o seu gosto.
+ 7. Após alguns minutos, está pronta para recheiar conforme o seu gosto. :)

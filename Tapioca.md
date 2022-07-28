@@ -2,10 +2,10 @@
 
 <h3>INGREDIENTES</h3>
 
- - 1 pacote (500g) de povilho doce
- - 1 colher de café de sal
- - 300 ml de água
- - Recheio de sua preferência
+ - 1 pacote (500g) de povilho doce;
+ - 1 colher de café de sal;
+ - 300 ml de água;
+ - Recheio de sua preferência;
 
  <h3> MODO DE PREPARO </h3>
 
